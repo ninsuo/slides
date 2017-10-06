@@ -6,5 +6,5 @@ Videos:
 https://youtu.be/0RKu12T0r5g
 
 [FR] Let's continue to hack!
-Soon
+https://youtu.be/uQTRs0rwO2E
 
